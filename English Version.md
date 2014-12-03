@@ -16,5 +16,4 @@ General Public Engineer Declaraion (GPED v1.0)
 - While commissioned by others, I have the right to charge a reasonable fee.
 - Any assistance provided by myself at any time as the case are able to be terminated.
 - Any assistance provided by myself are required to respect my profession. Client are not allowed to interfere with my actions during this time. Clients have the right to cancel commision as the case.
-- I apply the terms of GPNUDD v1.0
 - "General Public Unnecessary Death Declaration (GPNUDD) v1.0"(http://i.imgur.com/i5e62nT.jpg) are applicable to me.
